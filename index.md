@@ -2,9 +2,12 @@
 
 ## where you can teach or learn to hack 
 
-## videos
+# videos
+
 
 ### sorry no videos yet but if you have a video to share that you made be sure to share it with me or if you got it off a different website ask permisson to share with me first.
+
+
 
 ### (reminder: this website is used for real hacks not beauty or life hacks.
 
