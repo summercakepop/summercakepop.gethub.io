@@ -9,7 +9,7 @@
 
 
 
-### (reminder: this website is used for real hacks not beauty or life hacks.
+### (reminder: this website is used for real hacks, not beauty or life hacks.
 
 
  
@@ -21,5 +21,7 @@
 ### Pictures for your website or for fun
 [myphotos](myphotos)
 
-### you are always welcome to use items from this website for anything personal or socialmedia.
+### you are always welcome to use items from this website for anything personal, or socialmedia.
 ### if we do not accept items from you that you made be sure to try again and know that we did not mean to hurt you in anyway.
+
+### my email to contact 
